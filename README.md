@@ -17,7 +17,7 @@
       𓏵 :┊ Because I never even told you, ˳◜ ᯓ
  <br>
 <p align="center">
- ‎ ‎ 𐦍  ࣪˖◟‿ Oh, and I meant to.. 𓂃
+ ‎ ‎ 𐦍  ࣪˖◟‿ 𝙾𝚑, 𝚊𝚗𝚍 𝙸 𝚖𝚎𝚊𝚗𝚝 𝚝𝚘.. 𓂃
      <br>
   <p align="center">
 <img width="2360" height="584" alt="image" src="https://github.com/user-attachments/assets/4ad97b95-85e5-4a32-b7aa-30480e507d16" />
