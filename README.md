@@ -14,7 +14,7 @@
 
  <br>
 <p align="center">
-      𓏵 :┊ Because I never even told you, ˳◜ ᯓ
+      𓏵 :┊ 𝙱𝚎𝚌𝚊𝚞𝚜𝚎 𝙸 𝚗𝚎𝚟𝚎𝚛 𝚎𝚟𝚎𝚗 𝚝𝚘𝚕𝚍 𝚢𝚘𝚞, ˳◜ ᯓ
  <br>
 <p align="center">
  ‎ ‎ 𐦍  ࣪˖◟‿ 𝙾𝚑, 𝚊𝚗𝚍 𝙸 𝚖𝚎𝚊𝚗𝚝 𝚝𝚘.. 𓂃
