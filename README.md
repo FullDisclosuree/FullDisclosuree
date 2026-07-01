@@ -2,7 +2,7 @@
       <img width="2360" height="586" alt="image" src="https://github.com/user-attachments/assets/504ade2c-1f28-44f1-afeb-762111b3a7f0" />
   </p>
 
-#### ⋮ ⌗ ┆ [strawpage](https://saatogou.straw.page/) . [tiktok](https://www.tiktok.com/@ciicadadayss?_r=1&_t=ZN-95EYuPGoGIg) . [atabook](https://absence.atabook.org) ﹕ ﾒ
+#### ⋮ ⌗ ┆ [strawpage](https://acidtunnel0flove.straw.page) . [tiktok](https://www.tiktok.com/@ciicadadayss?_r=1&_t=ZN-95EYuPGoGIg) . [atabook](https://absence.atabook.org) ﹕ ﾒ
 
 <br>
 <p align="center">
