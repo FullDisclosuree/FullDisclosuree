@@ -2,7 +2,7 @@
       <img width="2360" height="586" alt="image" src="https://github.com/user-attachments/assets/504ade2c-1f28-44f1-afeb-762111b3a7f0" />
   </p>
 
-#### ⋮ ⌗ ┆ [strawpage](https://krusiee.straw.page) . [tiktok](https://www.tiktok.com/@ciicadadayss?_r=1&_t=ZN-95EYuPGoGIg) . [atabook](https://absence.atabook.org) . [pronouns page](https://en.pronouns.page/@ciicadadays) ﹕ ﾒ
+#### ⋮ ⌗ ┆ [strawpage](https://krusiee.straw.page) . [tiktok](https://www.tiktok.com/@ciicadadayss?_r=1&_t=ZN-95EYuPGoGIg) . [atabook](https://absence.atabook.org) . [pronouns cc](https://pronouns.cc/@ciicadadayss) ﹕ ﾒ
 
 <br>
 <p align="center">
