@@ -31,13 +31,13 @@
       I’m currently fixated on Deltarune, specifically Battenna (oomf dragged me into this onesided hellhole its so doomed) and dsaf! I do have long term fixations that I’m not that interested in atm, but will be happy to talk about, such as Steven universe, lifesteal, and more!
       <p align="center">
             I am super comfy with c+h and heavily encourage it! please int if you find me cool or think we have the same interests, I may take time to respond but that doesn’t mean I find you annoying, im just naturally like that.
-<br>
+<p align="center">
+      ———
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31rnpx2iljaunjlqgpupx6dfcf2e&redirect=true">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31rnpx2iljaunjlqgpupx6dfcf2e&cover_image=true&theme=novatorem&show_offline=true&background_color=000000&interchange=true&profanity=false&hide_remaster=false&bar_color=344f7a&bar_color_cover=false">
   </a>
 </p>
-<br>
   <p align="center">
 <img width="2360" height="584" alt="image" src="https://github.com/user-attachments/assets/4ad97b95-85e5-4a32-b7aa-30480e507d16" />
   </p>
