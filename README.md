@@ -19,7 +19,7 @@
 <p align="center">
  ‎ ‎ 𐦍  ࣪˖◟‿ 𝙾𝚑, 𝚊𝚗𝚍 𝙸 𝚖𝚎𝚊𝚗𝚝 𝚝𝚘.. 𓂃
       <br>
-      <img width="600" height="800" alt="image" src="https://i.postimg.cc/nLQj9rrg/EF0E0F78-691B-4B4F-8814-1D92D6AD283D.gif" />
+      <img alt="image" src="https://i.postimg.cc/fL5QC7rW/Untitled330-20260729150631.png" />
       <br>
       <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31rnpx2iljaunjlqgpupx6dfcf2e&redirect=true">
