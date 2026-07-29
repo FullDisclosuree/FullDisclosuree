@@ -28,7 +28,7 @@
 <p align="center">
       Call me Sam or anyone I’m cosplaying as. I appreciate any interactions even though I may be seen as a little closed off. I open up eventually.
 <p align="center">
-      I’m currently fixated on Deltarune, specifically Battenna (oomf dragged me into this onesided hellhole its so doomed) and dsaf! I do have long term fixations that I’m not that interested in atm, but will be happy to talk about, such as Steven universe, lifesteal, and more!
+      I’m currently fixated on Deltarune, specifically Suselle, krusie, Battenna!! (oomf dragged me into this onesided hellhole its so doomed) and dsaf! I do have long term fixations that I’m not that interested in atm, but will be happy to talk about, such as Steven universe, lifesteal, and more!
       <p align="center">
             I am super comfy with c+h and heavily encourage it! please int if you find me cool or think we have the same interests, I may take time to respond but that doesn’t mean I find you annoying, im just naturally like that.
 <p align="center">
